@@ -1,6 +1,6 @@
 Ignacio Meza De la Jara 🐱
 
-Analista de Riesgo Financieros BCI 🏦
+Analista de Modelos de Riesgo Financieros 🏦
 
 imezadelajara@gmail.com
 
